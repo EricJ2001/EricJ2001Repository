@@ -1,9 +1,6 @@
 # EricJ2001Repository
-I like to watch FAMILY GUY
-FAMILY GUY
-is
-NOT AS
-FUNNY
-AS
+I like to watch anime
 i
-REMEMBER
+
+
+
