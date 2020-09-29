@@ -3,7 +3,7 @@ I like to watch anime
 Coding
 is
 alot
-harder
+EASIER
 than
 i
-thought
+COULD EVER IMAGINE!
