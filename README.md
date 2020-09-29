@@ -1,9 +1,9 @@
 # EricJ2001Repository
-I like to watch anime
-Coding
+I like to watch FAMILY GUY
+FAMILY GUY
 is
-alot
-harder
-than
+NOT AS
+FUNNY
+AS
 i
-thought
+REMEMBER
